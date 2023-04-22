@@ -18,4 +18,5 @@ https://discord.gg/PjKbXsvB9X 💙
 #AzureOnTop
 
 
-![azure](https://user-images.githubusercontent.com/131541745/233800727-d0d8114e-bcb7-4fec-8057-ad3fa5c5dc2d.jpg)
+
+![azure](https://user-images.githubusercontent.com/131541745/233802106-622a1077-4bec-4196-9ae1-7fcbe106bbb1.png)
