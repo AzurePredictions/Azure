@@ -1,4 +1,4 @@
-# Azure
+# Azure Predictions
 
 Are you tired of inaccurate predictions? Do you want to invest your time and money wisely? Look no further than Azure - The ultimate predictor for Bloxflip, Rblxwild, and Bloxmoon.
 
@@ -15,3 +15,7 @@ So why settle for inaccurate predictions when you can have the best? Purchase Az
 ---------------------------------
 https://discord.gg/PjKbXsvB9X 💙
 ---------------------------------
+#AzureOnTop
+
+
+![azure](https://user-images.githubusercontent.com/131541745/233800727-d0d8114e-bcb7-4fec-8057-ad3fa5c5dc2d.jpg)
