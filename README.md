@@ -12,9 +12,6 @@ And with 24/7 availability and unbeatable performance and accuracy, Azure truly 
 
 So why settle for inaccurate predictions when you can have the best? Purchase Azure and start making informed decisions with ease. With Azure, the future is in your hands. 🔮
 
-╭━━━💙AZURE 💙━━━╮
-┃ 📈 Free and Paid!
-┃ ✅ High Accuracy!〔80-99.8%〕
-┃ 🎉 Giveaways & Rewards 
-┃ 👨🏿‍💻 Own API & Database 
-╰━━━👁️ Join Now! 👁️━━━━━━╯
+---------------------------------
+https://discord.gg/PjKbXsvB9X 💙
+---------------------------------
