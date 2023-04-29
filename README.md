@@ -13,10 +13,9 @@ And with 24/7 availability and unbeatable performance and accuracy, Azure truly 
 So why settle for inaccurate predictions when you can have the best? Purchase Azure and start making informed decisions with ease. With Azure, the future is in your hands. 🔮
 
 ---------------------------------
-https://discord.gg/PjKbXsvB9X 💙
+https://discord.gg/predictings 💙
 ---------------------------------
 #AzureOnTop
 
+![azure](https://user-images.githubusercontent.com/131541745/235328635-bfde9cf7-3e99-4d89-be78-15c22fe37b8f.png)
 
-
-![azure](https://user-images.githubusercontent.com/131541745/233802106-622a1077-4bec-4196-9ae1-7fcbe106bbb1.png)
